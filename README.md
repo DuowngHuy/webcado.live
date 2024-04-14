@@ -1,2 +1,2 @@
 # webcado.live
-stood up by the name
+không phải web cá độ thật đâu pls no ban
